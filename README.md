@@ -1,4 +1,4 @@
-# Not-A-Day-To-Die
+# Not A Day To Die
 
 Ofiicial trailer:
 
